@@ -1,4 +1,6 @@
 # Marcos
 Hola, me llamo Marcos 😄
 
-Estudiando algo con futuro 💻
+Empecé siendo un buceador cualquiera 🤽‍♂️
+
+Acutalmente esudiando algo con futuro 💻
